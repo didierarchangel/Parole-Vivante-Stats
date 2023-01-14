@@ -1,1 +1,0 @@
-Les valeurs de la parole vivante
