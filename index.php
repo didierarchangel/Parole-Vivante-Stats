@@ -1,1 +1,0 @@
-Bonjour l'équipe
